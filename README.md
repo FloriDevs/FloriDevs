@@ -1,5 +1,5 @@
 ## Hi there 👋
 
 🔭 I’m currently working on my new Github Account.
-👯 I’m looking to collaborate on nothing.
+👯 I collaborate with @BinaryBros24
 😄 Pronouns: He/They 
